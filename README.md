@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SamuelAtack
+- 👀 I’m interested in keeping the default readme so I don't have to create my own :)
+- 🌱 I’m currently learning how to edit a readme
+- 💞️ I’m looking to collaborate on overthrowing the world with readme
+- 📫 How to reach me samuel@atack.fr, or just mention a readme
+- 😄 Pronouns: read/me he/him
+- ⚡ Fun fact: I like readmes
